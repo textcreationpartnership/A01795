@@ -35,9 +35,30 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A satirycall dialogue or a sharplye-invectiue conference, betweene Allexander the great, and that tr
+
+1. bewteous: to the all-Illustrious, and
+most puissaunt creatures of the Earth, VVOEMEN:
+Willyam Goddard, sole desirer of th'yncrease of your
+bewtyes, and chiefe adorer of your goddes-like vertues,
+(with al reuerence to your Angelicall sex,) commendes to
+your protection this harsh vnlearned
+DIALOGVE.
+
+1. To the senceles Censurer.
+
 #####Body#####
-A satirycall dialogue or a sharplye-invectiue conference, betweene Allexander the great, and that tr
+
+1. A SATIRYCALL DIALOGVE
+OR A SHARPLYE-INVECTVIE
+CONFERENCE
+Betweene
+ALLEXANDER THE GREATE▪
+and that
+Trulye woman-hater Diogynes.
+YOu choyceste creatures, (you which god did takeFrom-out mans selfmans comforter to make)Discomfort 
+1. A MORRALL SATIRE,
+Intituled the Owles araygnement.
+
 **Types of content**
 
   * There are 1394 **verse** lines!
